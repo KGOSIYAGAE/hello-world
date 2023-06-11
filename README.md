@@ -5,4 +5,3 @@ Hello I am **Kgosiyagae Motabogi**, but you can call me Kgosi. I am a *software*
 
 This is the seconf update. 🤟
 
-Dumelang. 🤟
